@@ -8,3 +8,5 @@ Initial Features Planned
 - Voice recordings linked to the bible verse in question
 - Drawing / Note taking using stylus pen or finger
 - Video recording linked to a Bible verse explained
+
+To JESUS ber glory and honour and praise. May he bless these projects so that many can come to know His love and mercy.
